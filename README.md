@@ -5,5 +5,6 @@
 -  🍜 安徽人、不能吃辣
 -  🎹 喜欢玩游戏、看小说、看电影、弹钢琴
 -  ✨ 希望秋招能有大厂 offer
+-  😁 欢迎一起交流、抱团取暖
   
 ![](https://w.wallhaven.cc/full/g7/wallhaven-g7wwoe.png)
